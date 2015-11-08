@@ -4,12 +4,12 @@ These are people we think have contributed significantly to the evolution of man
 Three primary criteria for canonization are as follows:
 
 1) Large impact - The contributions made by the candidate should have reached a very wide audience, exemplifying the power of the internet to connect beings all over the planet. <br>
-2) Profundity - The contributions should resonate deeply with people, somehow expressing genuine, deep feeling, communicating from the heart. Most music videos, comedies, blogs will fail in this category.
-3) Pro-human - In keeping with Priciple 2 of the Church of the Internet, the contributions should reflect a love of humanity, life, the earth, nature, the universe. Makers of profoundly moving videos expressing hatred for life would not be eligible for canonization regardless of their popularity.
-4) ?
+2) Profundity - The contributions should resonate deeply with people, somehow expressing genuine, deep feeling, communicating from the heart. Most music videos, comedies, blogs will fail in this category.<br>
+3) Pro-human - In keeping with Priciple 2 of the Church of the Internet, the contributions should reflect a love of humanity, life, the earth, nature, the universe. Makers of profoundly moving videos expressing hatred for life would not be eligible for canonization regardless of their popularity.<br>
+4) ?<br><br>
 
 This is a work in progress, so if you think somebody should be on this list, please tell us.
-In no particular order, the saints of the internet, according to us, are
+In no particular order, the saints of the internet, according to us, are <br>
 
 - Yosemitebear62 a.k.a. Double Rainbow Dude
 We choose yosemitebear62 to be canonized because of his famous "Double Rainbow" video. https://www.youtube.com/watch?v=OQSNhk5ICTI

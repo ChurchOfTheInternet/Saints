@@ -3,7 +3,7 @@ These are people we think have contributed significantly to the evolution of man
 
 Three primary criteria for canonization are as follows:
 
-1) Large impact - The contributions made by the candidate should have reached a very wide audience, exemplifying the power of the internet to connect beings all over the planet.
+1) Large impact - The contributions made by the candidate should have reached a very wide audience, exemplifying the power of the internet to connect beings all over the planet. <br>
 2) Profundity - The contributions should resonate deeply with people, somehow expressing genuine, deep feeling, communicating from the heart. Most music videos, comedies, blogs will fail in this category.
 3) Pro-human - In keeping with Priciple 2 of the Church of the Internet, the contributions should reflect a love of humanity, life, the earth, nature, the universe. Makers of profoundly moving videos expressing hatred for life would not be eligible for canonization regardless of their popularity.
 4) ?
